@@ -1,0 +1,2 @@
+# jurami
+legal, litis, judiciales
